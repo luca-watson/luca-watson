@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @luca-watson
+- Currently a CS student at the University of Notre Dame, class of 2026
